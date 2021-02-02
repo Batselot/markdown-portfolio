@@ -1,0 +1,3 @@
+- Watching Netflix 
+- Playing Games
+- Researching 
