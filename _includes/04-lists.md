@@ -1,3 +1,3 @@
-Eating food
-Playing Games
-Researching 
+-Eating food
+-Playing Games
+-Researching 
