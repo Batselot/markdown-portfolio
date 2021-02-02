@@ -1,3 +1,3 @@
--Eating food
--Playing Games
--Researching 
+- Watching Netflix 
+- Playing Games
+- Researching 
